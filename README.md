@@ -1,4 +1,7 @@
 gitskills
 =========
 
-学习fjjfjfljllsdfjlsdjalf;jsa;ljfgit技能
+学习fjjfjfljllsdfjlsdjalf;jsa;lj
+fgit技能
+jdsjfls;jdfl;jxcvjl
+hello word
